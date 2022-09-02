@@ -1,1 +1,0 @@
-It's Copyright Free For Personal Use Only, Thank You!!
